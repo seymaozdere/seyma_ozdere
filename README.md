@@ -1,0 +1,1 @@
+# seyma_ozdere
